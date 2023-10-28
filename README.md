@@ -1,0 +1,1 @@
+# AmurazHostel.github.io
